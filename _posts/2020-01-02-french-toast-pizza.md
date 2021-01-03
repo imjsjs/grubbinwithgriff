@@ -4,7 +4,7 @@ title: "FRENCH TOAST PIZZA??!"
 date: 2021-01-02 12:00:00 -0500
 ---
 
-Tired of settling for leftover pizza being either cold and tough or hot and soggy? Step up your culinary game by french toasting your day-old pizza slices instead! This is the perfect recipe for those post-new years blues or any in-home brunch. Pair it with a mimoso for a weekend meal that would make Paunch Burger proud.  
+Tired of settling for leftover pizza being either cold and tough or hot and soggy? Step up your culinary game by french toasting your day-old pizza slices instead! This is the perfect recipe for those post-new years blues or any in-home brunch. Pair it with a mimosa for a weekend meal that would make Paunch Burger proud.  
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/UFuTHY3IhhE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
