@@ -21,10 +21,10 @@ Tired of settling for leftover pizza being either cold and tough or hot and sogg
 - 1-2 tbsp olive oil
 
 **Method**
-- In a medium sized, flat-bottom dish, whisk together your eggs, milks, and spices.
-- Dunk each slice of pizza into your custard on both sides. Let each slice soak for about 30 seconds before removing them from the custard. 
-- Heat a pan over medium with enough olive oil to coat the bottom. 
-- Once the pan and oil are preheated, place each soaked slice of pizza crust-side down in the pan.
-- Fry for 3-5 minutes until the crust is dark brown.
-- Flip each slice and fry the cheese side for an additional 3-5 minutes until the cheese is dark brown. 
-- Remove each slice from the pan, serve, and feel that hangover melt away. 
+1. In a medium sized, flat-bottom dish, whisk together your eggs, milks, and spices.
+2. Dunk each slice of pizza into your custard on both sides. Let each slice soak for about 30 seconds before removing them from the custard. 
+3. Heat a pan over medium with enough olive oil to coat the bottom. 
+4. Once the pan and oil are preheated, place each soaked slice of pizza crust-side down in the pan.
+5. Fry for 3-5 minutes until the crust is dark brown.
+6. Flip each slice and fry the cheese side for an additional 3-5 minutes until the cheese is dark brown. 
+7. Remove each slice from the pan, serve, and feel that hangover melt away. 
